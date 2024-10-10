@@ -1,1 +1,1 @@
-rrrrr
+Goodbye, cruel world
